@@ -1,2 +1,2 @@
-# command
+DANTEH MANAGE YOUR SINNERS!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!# command
 /
